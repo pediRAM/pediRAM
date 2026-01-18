@@ -1,3 +1,5 @@
+![](https://pgh.geekgalaxy.com/downloads/2-no-48-no-more-islamic-republic.png)
+
 ## **IRAN IS BLEEDING --- AND THE WORLD IS SILENT**
 BEGIN OF UPDATE: 2026-01-18
 
